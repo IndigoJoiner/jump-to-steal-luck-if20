@@ -1,4 +1,4 @@
-#  
+#  jump to steal lucky blocks Script secure offers the most advanced jump to steal lucky blocks Script, with speed and aimbot. Perfect for dominating
 
 
 
